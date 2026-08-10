@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-NAGS851008HMCVMR00
+NAGS851008HMCVMR00
